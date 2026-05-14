@@ -1,4 +1,4 @@
-
+Get ahead in sol's rng with vip sol's rng Scripts, featuring invisibility and auto-farm. Download now to dominate every match with ease and confidence, thanks to its advanced and
 
 
 
